@@ -1,1 +1,1 @@
-fucnction (niggakilling)
+balls
